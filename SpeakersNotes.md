@@ -22,4 +22,4 @@
 > Throughout the film, the French were depicted as antagonistic. Hipocritically so, starting at the juxtaposition of the celebrations in France with the Massacre in Sétif. Following with delegation of the French-Algerian population to Shanty-Town. To the secret police torturing, killing and dehumanizing people who they _suspect_ to be associated with the FLN. With it all culminating with the shootout at the end of the film and the murder of Messaoud and Abdelkader. 
 
 ## Reception
-> 
+
