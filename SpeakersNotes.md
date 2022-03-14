@@ -23,11 +23,5 @@
 ## The Depiction of France
 > Throughout the film, the French were depicted as antagonistic. Hypocritically so, starting at the juxtaposition of the celebrations in France with the Massacre in Sétif. To the secret police torturing, killing, and dehumanizing people who they _suspect_ to be associated with the FLN. To the bombing of Shantytown, the list goes on... culminating with the shootout at the end of the film and the murder of Messaoud and Abdelkader. Although the "protagonists" of this film were lit under a rather morally grey light, France was given a largely villainous role. Now, It must be noted that this film is not anti-France. This film is first and foremost anti-colonialism. The French were depicted as the antagonists of this film because they were a colonial power in Algeria. The Algerian people were promised greater self-rule after WWII and they never received it.
 
-## The Police
-> From the beginning of the film, the police, and other authoritative figures were only depicted doing heinous things. In the beginning, during the depiction of the Sétif Massacre, The police were shown committing summary executions. As above mentioned the killing of many French-Algerian people was carried out by the police, by dumping them in rivers, bombing towns, simply shooting civilians. On many occasions, the police were shown shooting people for simply existing, as was shown in the beginning of the film and later during the boxing match and at the end of the film. The police were depicted as people on a warpath to destroy the FLN, completely unconcerned with the collateral damage that may ensue from their tactics.
-
-### Colonel Faivre (Played by Bernard Blancan)
-> Faivre was the leading antagonist during this film. A decent portion of the atrocities carried out by the police during this film was spearheaded by him. He was the foil to the three brothers.
-
 
 
