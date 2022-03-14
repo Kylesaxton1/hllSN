@@ -3,6 +3,9 @@
 ## Introduction
 > A controversial film directed by French-Algerian Rachid Bouchareb, depicting the lives of three Algerian brothers in the time leading up to the French-Algerian War. Made in collaboration with producers in France, Algeria, Tunisia, and Belgium, this film explores many of the events leading up to the French-Algerian War.
 
+## Le Chef (Rachid Bouchareb)
+> Born September 1st, 1953, Rachid Bouchareb is a French film director and producer, known for many films based upon the complex and long history between France and Algeria. Born in Paris, France, to Algerian parent, just over one year before the beginning of the French-Algerian war, Rachid began his life at a very troubling and divicive time. He began his career in 1997 as an assistant director for television in France's State Television. After some time he moved on to bigger things and started producing many films (La Vie de Jésus, Humanité, et Flanders). Also in this timehe directed many feature films. His biggest success [Days of Glory](https://en.wikipedia.org/wiki/Days_of_Glory_(2006_film)) is the prequel to this film and shares many of the same actors.
+
 ## The Three Brother
 > The film follows the lives of three Algerian brothers, taking most of its time on their lives in France. The film begins with the three being forced out of their family home due to colonial settlers buying the land. After that, the film moved on to the Sétif Massacre occurring on May 8, 1945. All three brothers found themselves present at this massacre, each of them having separate experiences from this event. It is important to note that during this event, the three brothers lost their father, but also their two sisters. I believe that all three of these brothers represent a different approach to the situation of colonial oppression.
 
