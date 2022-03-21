@@ -23,5 +23,5 @@
 ## The Depiction of France
 > Throughout the film, the French were depicted as antagonistic. Hypocritically so, starting at the juxtaposition of the celebrations in France with the Massacre in Sétif. To the secret police torturing, killing, and dehumanizing people who they _suspect_ to be associated with the FLN. To the bombing of Shantytown, the list goes on... culminating with the shootout at the end of the film and the murder of Messaoud and Abdelkader. Although the "protagonists" of this film were lit under a rather morally grey light, France was given a largely villainous role. Now, It must be noted that this film is not anti-France. This film is first and foremost anti-colonialism. The French were depicted as the antagonists of this film because they were a colonial power in Algeria. The Algerian people were promised greater self-rule after WWII and they never received it.
 
-
-
+## Discussion Questions
+1. A very strong theme in this film is that of promises not being held up. The exposition of this film contains the biggest broken promise that leads to 
